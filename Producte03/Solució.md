@@ -1,0 +1,4 @@
+
+# Solució:
+
+https://docs.google.com/document/d/1w-XdVpy-1ckS4ehC_UhCLyHTkspzQW91_VqkDSYUKPQ/edit?usp=sharing
